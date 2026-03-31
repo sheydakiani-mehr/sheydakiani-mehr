@@ -31,7 +31,6 @@ I specialize in bridging the gap between advanced Machine Learning research and 
 
 ### 📬 Connect with Me
 - **LinkedIn:** [linkedin.com/in/sheyda-kianimehr](https://www.linkedin.com/in/sheyda-kianimehr/)
-- **Scholar:** [Google Scholar Profile](https://scholar.google.com/citations?user=v_X_X_8AAAAJ)
 
 ---
 
